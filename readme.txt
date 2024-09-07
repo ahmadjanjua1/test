@@ -1,1 +1,1 @@
-hi how are you? how's going
+hi how are you? how's goin
